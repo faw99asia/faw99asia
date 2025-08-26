@@ -4,7 +4,7 @@ Faw99 >>> Agen Hiburan Online Terbaik
 
 Selamat datang di Faw99, destinasi utama untuk hiburan online yang menggabungkan berbagai macam permainan, taruhan olahraga, dan layanan streaming dalam satu platform. Dengan komitmen untuk memberikan pengalaman terbaik bagi para pengguna, Faw99 menawarkan antarmuka yang ramah pengguna, transaksi yang aman, serta dukungan pelanggan yang responsif. Bergabunglah dengan komunitas kami dan temukan berbagai keseruan yang tak terbatas di Faw99!
 
-[![Faw99-daftar-login](https://i.ibb.co.com/ScgZfN4/Faw99-daftar-login.jpg)](https://s.id/faw99-link)
+[![Faw99-daftar-login](https://res.cloudinary.com/dyttdmdif/image/upload/v1745719235/r1qlRiC_xczsmv.gif)](https://faw99slot.site/)
 
 ## Fitur Unggulan Faw99:
 
